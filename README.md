@@ -89,3 +89,5 @@
 * Upchuck Nunchuks and the Fuckity Nopes
 * Vibrating Scrum Environment
 * Wednesday Boy
+* I saw them at Reading in 92
+* Unsolicited aubergine
